@@ -1,6 +1,6 @@
 ## 🌸 Hi there, I'm Valesca!
 
-🎓 Bsc in Information Systems 
+🎓 BSc in Information Systems 
 
 💼 Working with Cybersecurity   
 
