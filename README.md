@@ -2,7 +2,7 @@
 
 🎓 BSc in Information Systems 
 
-💼 Working with Cybersecurity   
+💼 Currently working with Cybersecurity   
 
-🌎 Passionate about technology, threat intelligence, and languages! 
+🌎 Passionate about technology, software desing & development, threat intelligence, and languages! 
 
